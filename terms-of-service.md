@@ -73,4 +73,4 @@ These Terms shall be governed by and construed in accordance with applicable law
 
 If you have any questions about these Terms of Service, please contact us at:
 
-**Email**: samere99@hotmail.com
+**Email**: convoyeurapp@gmail.com
